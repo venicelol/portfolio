@@ -1,2 +1,2 @@
 # portfolio
-Here is my finished recipe on Filipino Spaghetti.
+Here is my finished portfolio! Enjoy!
